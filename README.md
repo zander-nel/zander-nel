@@ -1,0 +1,9 @@
+- 👋 Hi, I’m Zander Nel
+- 😎 Proud Entelectual
+- 🐱‍💻 Parent of a hacker cat
+- 🤠 Bug wrangler in the wild, wild web
+- 🚀 Explorer of the code cosmos
+- 🪄 Polyglot wizard
+- 📫 Discord's strongest meme poster (@zandernel)
+- 🖼️ Faced my fears (touched grass)
+- ⚡ Powered by caffeine
